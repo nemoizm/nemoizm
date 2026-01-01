@@ -1,6 +1,6 @@
 <!-- ### Hi there 👋. I'm Ha Nguyen , and this is a very professional profile -->
 
-<img src="https://capsule-render.vercel.app/api?type=waving&height=200&color=timeGradient&text=Code%20With%20Nemo&textBg=false&animation=twinkling&desc=DevSecOps%20Engineer%20|%20Cloud%20Engineer%20&descSize=16&descAlignY=55&fontAlignY=32&fontSize=50&fontColor=fff" width="100%"/>
+<!-- <img src="https://capsule-render.vercel.app/api?type=waving&height=200&color=timeGradient&text=Code%20With%20Nemo&textBg=false&animation=twinkling&desc=DevSecOps%20Engineer%20|%20Cloud%20Engineer%20&descSize=16&descAlignY=55&fontAlignY=32&fontSize=50&fontColor=fff" width="100%"/> -->
 
 ### Hi there 👋. Nemo here, and this is a very professional profile
 
