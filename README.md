@@ -1,3 +1,3 @@
-_**The king exists for his people. Without his people, there is no king.**_
+_**It's not bad enough they buried us alive in the oversized dung heap, but now they're stealing our chakra. You gotta give these guys credit for thoroughness!**_
 
-Ling Yao (Fullmetal Alchemist: Brotherhood)
+Kiba Inuzuka (Naruto)
