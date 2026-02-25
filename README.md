@@ -1,3 +1,3 @@
-_**Sometimes, forgetting is a type of happiness.**_
+_**I believe that some truths should never be known.**_
 
-Kaname Kuran (Vampire Knight)
+Konoha Inoue (Bungaku Shoujo)
