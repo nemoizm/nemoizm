@@ -1,3 +1,3 @@
-_**I believe that some truths should never be known.**_
+_**C'mon, there is no such thing as gross stuff in this world...  Except for GROSSLY CUTE things.**_
 
-Konoha Inoue (Bungaku Shoujo)
+Fuura Kafuka (Sayonara, Zetsubou-Sensei)
