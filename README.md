@@ -1,3 +1,3 @@
-_**C'mon, there is no such thing as gross stuff in this world...  Except for GROSSLY CUTE things.**_
+_**Saya, no matter what happens, do what you believe is right. Accept your past. And if you trip, remember nankurunasia. Live through today for tomorrow's sake.**_
 
-Fuura Kafuka (Sayonara, Zetsubou-Sensei)
+George Miyagusuku (Blood+)
