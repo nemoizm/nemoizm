@@ -1,3 +1,3 @@
-_**Saya, no matter what happens, do what you believe is right. Accept your past. And if you trip, remember nankurunasia. Live through today for tomorrow's sake.**_
+_**People can only truly understand things that they've actually experienced.**_
 
-George Miyagusuku (Blood+)
+Lichtendahl Tsery (Mobile Suit Gundam 00)
