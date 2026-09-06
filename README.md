@@ -1,3 +1,3 @@
-_**Despair… It hides away propagates, expands, and finally explodes.**_
+_**[to an arrogant projectile-specialist Shinigami] Apparently, on this side, "ultimate master" means a windbag with diarrhea of the mouth.**_
 
-Gantz (Gantz)
+Uryuu Ishida (Bleach)
